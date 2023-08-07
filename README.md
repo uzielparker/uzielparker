@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @uzielparadczxcker
-- 👀 I’m interested in ...
+- 👀 I’m interested in .vcx..dasd
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...asdcxz
 - 📫 How to reach me ...zxcйу
