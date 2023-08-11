@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @uzielparadczxcker
 - 👀 I’m interested in .vcx..dasd
 - 🌱 I’m curredfgfdntly learning ...
-- 💞️ I’m looking to colldgfaborsdate on ...asdcxz
+- 💞️ I’m looking to colldgfabasforsdate on ...asdcxz
 - 📫 How to reach me ...zxcйу
 xzcxzcdfggfd
 <!---gfd
