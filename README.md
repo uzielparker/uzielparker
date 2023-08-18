@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @uzielparadczxcker
 - 👀 I’m interested in .vcx..dasd
 - 🌱 I’m curredfgfdntly learning ...
-- 💞️ I’m looking to colldgfabasforsdate on ...asdcxz
-- 📫 How to reach me ...zxcйуівав
+- 💞️ I’m looczxcking to colldgfabasforsdate on ...asdcxz
+- 📫 How to reach me ...zxcйуівавчяс
 xzcxzcdfggfdfshte
 <!---gfdxcv
 uzielparker/uzielparker is acxz ✨ specialcv ✨ repository because its `README.md` (this file) appears on your GitHub profile.
