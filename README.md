@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @uzielparadczxcker
-- 👀 I’m interested in .vcx..dasd
-- 🌱 I’m curredfgfdntly learning ...
+bcxsted in .vcx..dasd
+- 🌱 I’m curredfgfdntly lsadearning ...
 - 💞️ I’m looczxcking to colldgfabasforsdate on ...asdcxz
 - 📫 How to reach me ...zxcйуівавчяс
 xzcxzcdfggfdfshte
