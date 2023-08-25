@@ -1,7 +1,7 @@
 bcxsted in .vcx..dasd
 - 🌱 I’m curredfgfdntly lsadevbnmarning ...
-- 💞️ I’m looczxcking to colldgfabasforsdate on ...asdcxzvbnmfd
-- 📫 How to rсчмeach me ...zxcйуівавчяс
+- 💞️ I’m looczxcking to colldgfaxcvbasforsdate on ...asdcxzvbnmfd
+- 📫 How to rсчмeach me ...zxsdfcйуівавчяс
 xzcxzcdfggfdfshte
 <!---gfdxcv
 uzielparker/uzielparker is acxz ✨ specialcv ✨ repository because its `README.md` (this file) appears on your GitHub profile.
