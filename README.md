@@ -1,6 +1,6 @@
-bcxsted in .vcx..dasd
+bcxsted in .vcx..dasdasd
 - 🌱 I’m curredfgfdntly lsadevbnmarning ...
-- 💞️ I’m looczxcking to colldgfaxcvbasforsdate on ...asdcxzvbnmfd
+- 💞️ I’m looczxcking to colldgfaxcvbasforsdate on ...asdcxzvbnmfdasd
 - 📫 How to rсчмeach me ...zxsdfcйуівавчяс
 xzcxzcdfggfdfshte
 <!---gfdxcv
