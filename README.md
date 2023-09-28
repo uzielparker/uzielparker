@@ -1,5 +1,5 @@
 bcxsted in .vcx..dasdasd
-- 🌱 I’m curredfgfdntly lsadevbnmarning ...
+- 🌱 I’m curredfgfdntly lsadevbnmsdfasdfarning ...
 - 💞️ I’m looczxcking to colldgfaxcvbasforsdate on ...asdcxzvbnmfdasd
 - 📫 How to rсчмeach me ...zxsdfcйуівавчясcxvxcvxcv
 xzcxzcdfggfdfshtefsdvfvc
