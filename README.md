@@ -1,4 +1,4 @@
-bcxsted in .vcx..dasdasd
+bcxsted in .vcxnnb..dasdasd
 - 🌱 I’m curredfgfdntly lsadevbnmsdfasdfarning ...
 - 💞️ I’m looczxcking to j,colldgfaxchklvbasbforsdaasdcte мячсмsdasdячсмn ...asdcxzvbnmfdasdcvbhgj
 - 📫 How to rсчмeach me ...zxsdfcйуівавчявіамсчимсcxvxcvxcv
