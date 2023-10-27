@@ -1,5 +1,5 @@
 bcxsted in .vcxnnb..dasdasd
-- 🌱 I’m curredfgfdntly lsadevbnmsdfasdfarning ...
+- 🌱 I’m curredfgfdntly lsadevbnmsdfasdfarning ds...
 - 💞️ I’m looczxcking to j,colldgfaxchklvbasbforsdaasdcte мячсмsdasdячсмn ...asdcxzvbnmfdasdcvbhgj
 - 📫 How to rсчмeach me zx...zxsdfcйуівавчявіамсчимсcxvxcvxcv
 xzcxzcdfggfdfshtefsdvfvc
