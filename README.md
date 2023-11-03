@@ -1,7 +1,7 @@
 bcxsted in .vcxnnb..dasdasd
 - 🌱 I’m curredfgfdntly lsadevbnmsdfasdfarning ds...
 - 💞️ I’m looczxcking to uvlkgj,colldgfaxchklvbasbforsdaasdcte мячсмsdasdячсмn ...asdcxzvbnmfdasdcvbhgjdc
-- 📫 How to rсчмeach me zx...zxsdfcйуівавчявіамсчимсcxvxcvxcvxzc
+- 📫 How to rсчмeach me asdzx...zxsdfcйуівавчявіамсчимсcxvxcvxcvxzc
 xzcxzcdfggfdfshtefsdvfvc
 <!---gfdxcvdsasdsaxvzxccxz
 uzielparker/uzielparker is acxz ✨ specialcv ✨ repository because its `README.md` (this file) appears on your GitHub profidase.
