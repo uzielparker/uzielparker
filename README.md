@@ -1,6 +1,6 @@
 bcxsted in .vcxnnb..dasdasdsadscxvcxv
 - 🌱 I’m curredfgfdntly lsadevbjhknmsdfasdfarning ds...
-- 💞️ I’m looczxcking to іфвчясuvlkgj,colldgfaxchklvbasbіфвforsdaashgjvdcte мячсмsdasdячсмn ...asdcxzvsadsabnmfdasdcvbhvghjkgjgjdcvbc
+- 💞️ I’m looczxcking to іфвчясuvlkgj,colldgfaxchklvbasbіфвforsdaashgjvdcte мячсмsdasdячсмn ygkh...asdcxzvsadsabnmfdasdcvbhvghjkgjgjdcvbc
 - 📫 How to rсчмeach me asdsaasdzx...zxsdfcйуівавчявіамсчимсcxvxcvxcvxzc
 xzcxzcdfggfdfshtefsdvfvc
 <!---gfdxcvdsasdsaxvzxccxz
