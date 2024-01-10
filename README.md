@@ -1,7 +1,7 @@
 bcxsted in .vcxnnb..dasdasdsadscxvcxv
 - 🌱 I’m curredfgfdntly lsadevbjhknmsdfasdasfasdfarning gfgdfgdgfdgds.fdsffdkhlkfgdfgfdsdf..sasdsadasdfkfkjfdsfdsadczxc
-- 💞️ I’m looczxcking to fdgdfgasdsadasdasddsіфвфівvjgkhasdasdjkxcdsasadxcxsddіfdsfsdfфвчясuvsdlkgj,colldgsaasdas,hjghh,jkdasadasdxxkhkgczcasdsadaszxfaggjvxchkіфчявasdsadzаваccсsdadasdчяlvbhasdzxcxzcjjasbіфвforsіsadcxzdaashgjvdctesadsadasd мячсмsdasdячорлсhfbcvbcvмn sdsdлпроygkh...asdcxzvsadsabnmfdaasfszxcxzcdfsdfdsadsdcvbhvghjkgjgjdcvbc
-- 📫 How to rсчмeach me asdsaasdzx...zxsdfcйуівавчявіамсчимсcxvxcvxcvxzc
+- 💞️ I’m looczxcking to fdgdfgasdsadasdasddsіфвфівvjgkhasdasdjkxcdsasadxcxsddіfdsfsdfфвчясuvsdlkgj,colldgsaasdas,hjghh,jkdasadasdxxkhkgczcasdsadaszxfaggjvxchkіфчявasdsadzаваccсsdadasdчяlvbhasdzxcxzcjjasbіфвforsіsadcxzdaashgjvdctesadsadasd мячсмsdasdячорлсhfbcvbcvмn sdsdлпроygkh...asdcxzvsadsabnmfdaasfszxcxzcdfsdfdsadsdcvbhvghjkgjgjdcvbctertert
+- 📫 How to rсчмeach me sgsddsfsdasdsaasdzx...zxsdfcйуівавчявіамсчимсcxvxcvxcvxzc
 xzcxzcdfggfdfshtefsdvfvc
 <!---gfdxcvdsasdsaxvzxccxz
 uzielparker/uzielparker is acxz ✨ specialcv ✨ repository because its `README.md` (this file) appears on your GitHub profidase.
