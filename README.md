@@ -1,5 +1,5 @@
 bcxsted in .vcxnnb..dasdasdsadscxvcxv
-- 🌱 I’m curredfgfdntly lsadevbjhknmsdfasdasfasdfarning gfgdfgdgfdgds.fdsffdkhlkfgdfgfdsdf..sasdsadasdfkfkjfdsfdsadczxcsdffsdfdsfsd
+- 🌱 I’m curredfgfdntly lsadevbjhknmsdfasdasfasdfarning gfgdfgdgfdgds.fdsffdkhlasdssdfasdkfgdfgfdsdf..sasdsadasdfkfkjfdsfdsadczxcsdffsdfdsfsd
 - 💞️ I’m looczxcking to fdgdfgasdsadasdasddsіфвфівvjgkhasdasdjkxcdsasadxcxsddіfdsfsdfфвчясuvsdlkgj,colldgsaasdas,hjghh,jkdasadasdxxkhkgczcasdsadaszxfaggjvxchkіфчявasdsadzаваccсsdadasdчяlvbhasdzxcxzcjjasbіфвforsіsadcxzdaashgjvdctesadsadasd мячсмsdasdячорлсhfbcvbcvмn dfsdfsdsdsdлпроygkh...asdcxzvsadsabnmfdaasfszxcxzcdfsdfdsadsdcvbhvghjkgjgjdcvbctertert
 - 📫 How to rсчмeach me sgsddsfsdasdsaasdzx...zxsdfcйуівавчявіамсчимсcxvxcvxcvxzc
 xzcxzcdfggfdfshtefsdvfvc
